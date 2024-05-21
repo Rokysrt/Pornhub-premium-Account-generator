@@ -1,4 +1,5 @@
 [![Author](https://img.shields.io/badge/Author-Rokysrt-blueviolet)](https://github.com/Rokysrt) 
+[![Bin](https://img.shields.io/badge/-Rokysrt-ff69b4)](https://github.com/Rokysrt/Pornhub-premium-Account-generator/releases/tag/File) 
 # Pornhub-premium-Account-generator
 Best free app to generate pornhub account🔱 
 #                                          Screenshot
